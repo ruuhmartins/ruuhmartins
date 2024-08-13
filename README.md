@@ -5,6 +5,6 @@
 - 🤔 Gosto muito da prof danny
 - 💬 Quero ser veterinária
 - 📫 Tenho 14 anos
-- 😄 Estudo no colegio civico militar 
-- ⚡ 
--->
+- 😄 Estudo no colegio civico militar.
+
+- ![gif](https://media.tenor.com/7Gku5NEImQEAAAAi/grimacing-faces-cold-sweat.gif)
